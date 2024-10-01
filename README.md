@@ -1,4 +1,15 @@
-# Repo_class_mixup
+
  this repo is to mess around
 
-Hello world by yaya
+Hi!!! how are you?
+
+I'M sleepy 
+    
+
+
+
+hi im hunrgy!!
+
+:)
+
+
